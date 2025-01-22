@@ -1,3 +1,6 @@
+![Alt Text](Image URL or Path)![[image](https://github.com/user-attachments/assets/1bb69e23-9524-4be4-8a0b-ea855f46203f](https://www.linkedin.com/pulse/stargate-project-paving-way-jobs-innovation-tasneem-hassan-tas--kwavc/?trackingId=RoOvqaqcSd2QXBBKLWvzqQ%3D%3D)
+
+
 # The Stargate Project: Paving the Way for Jobs and Innovation!
 
 As announced recently, the **Stargate Project**, a groundbreaking collaboration by **Oracle, OpenAI, SoftBank, and NVIDIA**, is set to revolutionize the future of **AI infrastructure**. With a massive **$500 billion investment** and data centers already under construction in Texas, this initiative is expected to create **over 100,000 jobs globally** in the coming years.
