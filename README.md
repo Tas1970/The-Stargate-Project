@@ -26,7 +26,7 @@ Beyond hiring, Talent Acquisition will lead the way in:
 
 The **Stargate Project** is not just a technological milestone—it’s a beacon of **hope, growth, and opportunity** for professionals across industries, especially in Talent Acquisition. This is the moment to embrace change, upskill, and align ourselves with the future of work. Together, we can build a future where **technology and people thrive in harmony.**
 
-Let’s step forward with **optimism, adaptability, and ambition**. The opportunities are endless—are you ready to be part of this revolution? 🚀  
+Let’s step forward with **optimism, adaptability, and ambition**. The opportunities are endless—are you ready to be part of this revolution? 
 
 **What excites you the most about these developments? Let’s discuss below!**
 
