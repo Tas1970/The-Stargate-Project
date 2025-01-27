@@ -1,7 +1,7 @@
 
 ![Alt Text](https://github.com/Tas1970/The-Stargate-Project/blob/main/Stargate%20Image.png)
 
-[Link Text](https://www.linkedin.com/pulse/stargate-project-paving-way-jobs-innovation-tasneem-hassan-tas--kwavc/?trackingId=lf4%2FOESZR822Cnb4jVddsA%3D%3D)
+[The Stargate Project](https://www.linkedin.com/pulse/stargate-project-paving-way-jobs-innovation-tasneem-hassan-tas--kwavc/?trackingId=lf4%2FOESZR822Cnb4jVddsA%3D%3D)
 
 
 # The Stargate Project: Paving the Way for Jobs and Innovation!
