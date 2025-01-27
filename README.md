@@ -1,4 +1,5 @@
 
+![Alt Text](https://github.com/Tas1970/The-Stargate-Project/blob/main/Stargate%20Image.png)
 
 # The Stargate Project: Paving the Way for Jobs and Innovation!
 
